@@ -15,5 +15,3 @@ Suddenly, the fluffy baby tiger remembered that he just learned how to play the 
 At that point, the fluffy baby tiger took out the wicker basket he also conveniently had in his basket, scooped the slithery snake named Donald into it and placed the basket top on it. The fluffy baby tiger was very happy that he just so happened to carry his oboe and the wicker basket with him on his journey. The fluffy baby tiger, having now returned to his normal daily schedule, began to play with his squishy bouncy ball and lived happily ever after.
 
 The End.
-
-Moral of the story: Sometimes, life will grab you by the [redacted], but then there will be some conveniently placed tools and leaks to help you alleviate the pressure and issue. 
