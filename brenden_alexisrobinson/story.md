@@ -1,1 +1,1 @@
-The lazy sloth fell out of bed. 
+The lazy sloth fell out of bed. Luckily for him he didn't hit his head. He landed on his fluffy butt instead! 
