@@ -6,4 +6,8 @@ First he came across his friend, the white dog named Brian. "Do you know where m
 
 The fluffy baby tiger went down the hill to the lake where he found the slithery snake playing with his squishy bouncy ball. "Hey, that's my squishy bouncy ball", exclaimed the fluffy baby tiger.
 
-"Well I stole it fair and so I've elected to keep it." "It's mine now", said the slithery snake. 
+"Well I stole it fair and so I've elected to keep it." "It's mine now", said the slithery snake.
+
+The fluffy baby tiger didn't know what to do.
+
+To be continued...
