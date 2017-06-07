@@ -2,3 +2,4 @@
 
 * [Introduction](README.md)
 * [The Fluggy Bunny and the Squeaky Gate](bock_david/story.md)
+* [The Lazy sloth] (brenden_alexisrobinson/story.md)
