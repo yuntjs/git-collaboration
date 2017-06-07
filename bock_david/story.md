@@ -10,7 +10,7 @@ The carrots were close, but there was no overhead protection.  He wanted those c
 
 **SQUEEK!** went the sound again.  **SQUEEK!  BANG!**
 
-Just then, a human came walking up the path.  He idn't know what to do!  He couldn't get the carrots, and he couldn't run home!
+Just then, a human came walking up the path.  He didn't know what to do!  He couldn't get the carrots, and he couldn't run home!
 
 _to be continued_
  
