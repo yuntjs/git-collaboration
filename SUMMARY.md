@@ -23,3 +23,5 @@ HEAD
 =======
 * [The Sneaky Dog and the Grumpy Man](cahill_mason/story.md)
 1711ebfdc86e89e8ef267e607544475bb67780a5
+
+* [The Friendly Baby Tiger and the Squishy Bouncy Ball](waweru_sven/story.md)
