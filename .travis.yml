@@ -1,2 +1,3 @@
 install:
-  -  npm install markdown-spellcheck
+  - bundle install --path vendor/bundle
+  - npm install markdown-spellcheck
