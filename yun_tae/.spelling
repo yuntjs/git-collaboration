@@ -3,19 +3,5 @@
 # global dictionary is at the start, file overrides afterwards
 # one word per line, to define a file override use ' - filename'
 # where filename is relative to this configuration file
-snuck
-SQUEEK
-mommy
-stalky
-streetcar
-covfefe
-bff
-sparknotes
-luau
-neighbors
-armor
-Pepe
-Phillip
-Mr.Baker
-_be
-
+tae
+yun
