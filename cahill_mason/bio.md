@@ -1,4 +1,4 @@
 Mason Cahill
 ===
 
-Mason Cahill is an aspiring DevOps enginner at Excella Consulting.
+Mason Cahill is an aspiring DevOps engineer at Excella Consulting.
