@@ -4,7 +4,7 @@ Once upon a time there was a fluffy little bunny named Carl.  Carl was an advent
   
 One day he saw some delicious carrots growing in a stranger's yard.  "I'm gonna go eat those carrots!", Carl said to himself.
 
-So carl snuck up the path, slowly opened the gate, and then rushed to the carrots as fast as he could.  He wasn't half-way to the carrots when he heard a sound unlike anything he'd ever heard before.  **"SQUEEK!"** went the sound.  Carl froze, fearing a bird overhead.  **"SQUEEK!"** it went again.  he ran to the nearest bush and hid.
+So Carl snuck up the path, slowly opened the gate, and then rushed to the carrots as fast as he could.  He wasn't half-way to the carrots when he heard a sound unlike anything he'd ever heard before.  **"SQUEEK!"** went the sound.  Carl froze, fearing a bird overhead.  **"SQUEEK!"** it went again.  he ran to the nearest bush and hid.
 
 The carrots were close, but there was no overhead protection.  He wanted those carrots, but he was afraid.  He hid under the bush for an hour, and was beginning to think the coast was clear.
 
@@ -20,7 +20,7 @@ The human walked by him three more times picking beans, pulling beats out of the
 
 Carl watched her leave.  As she approached the gate, he thought, "Now I just need to figure out how to avoid the bird."
 
-But as she left, she opened the gate.  **SQWEEK!  BANG!** went the gate as it closed behind her.
+But as she left, she opened the gate.  **SQUEAK!  BANG!** went the gate as it closed behind her.
 
 Carl was so relieved!  There wasn't a bird at all!  For some reason, the gate was making that noise.  He went home, sad he didn't get his carrots, but having learned something important - next time he's gonna get those carrots!
 
