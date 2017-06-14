@@ -1,4 +1,4 @@
-The chubby monkey and the impossible banana.
+The chubby monkey and the impossible banana!
 
 Once upon a time, there was a monkey that was a cute chubby monkey that loved bananas, but was having issue with one in particular. He wasn't able to peel the banana. The monkey tried everything, but couldn't find a solution.
 Couple of days after he found the banana, he asked his elephant friend to help, but he had no thumbs and wasn't able to help after. Sadly walking on the path, he found his other friend dragon and told him about the problem he was having.
