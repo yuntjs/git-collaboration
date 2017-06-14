@@ -1,6 +1,6 @@
 The Prickly Polar Bear and the Noisy Luau
 
-"Hmph," Paul said.  "That party is much too loud."
+"Humph," Paul said.  "That party is much too loud."
 
 Grumpily, he paced in his room, wishing the neighbors would quiet down.
 
